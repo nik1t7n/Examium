@@ -1,0 +1,8 @@
+![image](https://github.com/nik1t7n/ExamPreparation/assets/90299797/4ccf2c53-3925-4671-bdda-e29d955f0f85)
+![image](https://github.com/nik1t7n/ExamPreparation/assets/90299797/85d1c77e-d34b-4f14-903d-8923f461e1e6)
+![image](https://github.com/nik1t7n/ExamPreparation/assets/90299797/43444307-7ad7-432a-a942-8caf854e69aa)
+![image](https://github.com/nik1t7n/ExamPreparation/assets/90299797/8bf6af61-d11c-4f0d-aacf-6b79a370245a)
+![image](https://github.com/nik1t7n/ExamPreparation/assets/90299797/dbcce35a-916c-49ec-b9a5-19e02c8175c3)
+![image](https://github.com/nik1t7n/ExamPreparation/assets/90299797/25e0502b-c263-47f7-b5bb-356c7c261955)
+![image](https://github.com/nik1t7n/ExamPreparation/assets/90299797/3625c48c-1047-433a-93ab-f90893f4dd34)
+![image](https://github.com/nik1t7n/ExamPreparation/assets/90299797/3e2c8c3b-bbb8-49ea-8dcd-e6924e189601)
